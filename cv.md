@@ -7,7 +7,7 @@
 🌐 [Sofa-Yastrebova](https://github.com/Sofa-Yastrebova)  
 📍 Москва
 
-----
+-----
 
 ## 🎯 Профиль
 
